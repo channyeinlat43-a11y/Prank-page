@@ -1,1 +1,1 @@
-# Prank-page
+Fuck You
